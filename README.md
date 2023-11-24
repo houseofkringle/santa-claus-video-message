@@ -3,11 +3,11 @@ Santa Claus Video Messages
 <h1>A Comprehensive Guide to Santa Claus Video Messages</h1>
 <h2>Links to Articles</h2>
 
-How to Order a Personalized Santa Claus Video Message - https://www.houseofkringle.com/video-messages/santa-claus-video-messages-how-to-order/
+How to Order a Personalized Santa Claus Video Message - [https://www.houseofkringle.com/video-messages/santa-claus-video-messages-how-to-order/](https://www.houseofkringle.com/video-messages/santa-claus-video-messages-guide/santa-claus-video-messages-how-to-order/)
 
-What to Expect in a Personalized Santa Claus Video Message - https://www.houseofkringle.com/video-messages/santa-claus-video-messages-what-to-expect/
+What to Expect in a Personalized Santa Claus Video Message - [https://www.houseofkringle.com/video-messages/santa-claus-video-messages-what-to-expect/](https://www.houseofkringle.com/video-messages/santa-claus-video-messages-guide/santa-claus-video-messages-what-to-expect/)
 
-Examples of Santa Claus Video Messages - https://www.houseofkringle.com/video-messages/santa-claus-video-message-examples/
+Examples of Santa Claus Video Messages - https://www.houseofkringle.com/video-messages/santa-claus-video-messages-guide/santa-claus-video-messages-examples/
 
 Frequently Asked Questions about Santa Claus Video Messages - https://www.houseofkringle.com/video-messages/santa-claus-video-messages-faqs/
 
